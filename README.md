@@ -1,1 +1,1 @@
-open source storage disk or drives
+open source storage for devices without any cost
